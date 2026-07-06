@@ -1,4 +1,4 @@
-# 
+# Native TreeSize extensions for Mac OS | Free TreeSize extensions for PC Windows. Featuring multi-format support and multi-monitor support — optimized for maximum performance on every platform.
 
 
 
